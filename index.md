@@ -1,4 +1,10 @@
-Updated when i finish drawing
+Updated Every Morning
+
+## Febuary 22, 2021
+
+![OCP](storage/Angerofe.png)
+
+![OCP](storage/UPDOOT.png)
 
 ## January 14, 2021
 
